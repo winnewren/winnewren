@@ -4,4 +4,4 @@
 
 <p align="center"> ' 'cause i lost my mind in late september! ' </p>
 
-<p align="center">✦ <a href="https://rentry.co/ghoztflag">rentry</a> - <a href="https://pronouns.cc/@yurrycanon_">prns</a> - <a href="https://yurrycanon.atabook.org">atabook</a> ✦</p>
+<p align="center">✦ <a href="https://rentry.co/ghoztflag">rentry</a> - <a href="https://pronouns.cc/winnewren">prns</a> - <a href="https://winnewren.atabook.org">atabook</a> ✦</p>

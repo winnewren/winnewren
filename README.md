@@ -14,7 +14,7 @@
   ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 </p>
 <p align="center">
-  <a href="https://rentry.co/ghoztflag#">rentry</a>   ★   <a href="https://ghoztflag.atabook.com#">atabook</a>   ★   <a href="https://pronouns.cc/@winnewren#">pronouns</a>
+  <a href="https://rentry.co/ghoztflag#">rentry</a>   ★   <a href="https://ghoztflag.atabook.org#">atabook</a>   ★   <a href="https://pronouns.cc/@winnewren#">pronouns</a>
 </p>
 <p align="center">
   ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶

@@ -4,7 +4,7 @@
 <div>
   <p align="center">
     <img src="https://files.catbox.moe/0f0c0p.png" width="600">
-    <a href="https:/rentry.co/ghoztflag">
+    <a href="https://rentry.co/ghoztflag">
       <img src="https://files.catbox.moe/u6357u.png" width="600">
     </a>
     <a href="https://ghoztflag.atabook.org">
